@@ -1,0 +1,5 @@
+- *Caring*
+- **SEXY**
+- *Understanding
+- **Patient**
+  - **SAINT HOOD ACHIEVED**
